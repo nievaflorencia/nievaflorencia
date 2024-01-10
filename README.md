@@ -4,6 +4,6 @@
 
 
 
-![banner nuevo linkedin ](https://media.licdn.com/dms/image/D4E16AQFzye6yj0gpvg/profile-displaybackgroundimage-shrink_350_1400/0/1698106750113?e=1704326400&v=beta&t=kcXl4EEsjlbQPGza9a5fYFELEZKmppVTmvfTEcL5-AA)
+![banner nuevo linkedin ](https://github.com/nievaflorencia/nievaflorencia/assets/93798688/32e8a25e-7afc-4be9-a346-571165ee0f05)
 
 
